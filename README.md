@@ -24,7 +24,7 @@ SKILLS SET
 ▪	ESG (Environmental, Social and Governance) Product Owner and Programme/Project Manager
 
 QUALIFICATIONS AND DEVELOPMENT:	
-▪	DBA (Doctorate in Business Administration) Fintech (Blockchain Defi/NFT&Sec Tokens) – Part-time In progress
+▪	PhD Blockchain Defi – Part-time In progress
 ▪	Charter Banker, Charter Banker Institute, UK (Prized for the best ethical behaviour paper of Year, 2016
 ▪	MBA in Banking (Distinction), Bangor Business School University, Wales
 ▪	MBA in Finance, Warwick Business School, University of England, UK
